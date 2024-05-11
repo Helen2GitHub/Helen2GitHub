@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the application of GitHub
 - 📫 How to reach me using @helenemru@gmail.com
 - 😄 Pronouns
-- ⚡ Fun fact: charismatic
+- ⚡ Fun fact: tenacious
 - lets keep in touch
 - 
 
